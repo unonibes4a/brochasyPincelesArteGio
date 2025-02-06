@@ -1,1 +1,1 @@
-# brochasyPincelesArteGio
+los pinceles y brochas para pintar 3d tiene derechos de autor soy yo , puedes utilizarlo en tus proyectos par auso comercial y no  comercial  siempre que se diga en los creditos de tu trabajo quien o con que herramienta  lo hcistes, mi nombre es giovanni rodriguez 
