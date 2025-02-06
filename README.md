@@ -1,1 +1,1 @@
-los pinceles y brochas para pintar 3d tiene derechos de autor soy yo , puedes utilizarlo en tus proyectos par auso comercial y no  comercial  siempre que se diga en los creditos de tu trabajo quien o con que herramienta  lo hcistes, mi nombre es giovanni rodriguez 
+The brushes and paintbrushes for 3d painting are copyrighted, I am the artist, you can use them in your projects for commercial and non-commercial use as long as it is indicated in the credits of your work who or with what tool did it, my name is Giovanni Rodriguez
